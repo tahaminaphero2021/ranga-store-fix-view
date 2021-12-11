@@ -1,2 +1,2 @@
-# Ranga-store-fix:https://festive-clarke-2cb227.netlify.app/
+# Ranga-store-fix:https://wonderful-boyd-3dfb2c.netlify.app/
 
